@@ -1,0 +1,1 @@
+# kyrgyz_language
